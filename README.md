@@ -1,0 +1,2 @@
+# KofunPhotos13Tokyo_SuribachiyamaKofun
+摺鉢山古墳
